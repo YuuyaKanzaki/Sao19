@@ -14,15 +14,15 @@ The redhead girl inflating cheeks was the best friend of Ronye, who turned and a
 
 "I'm sorry, I got lost as to what to wear ......"
 
-"Got… lost, but in the end, stayed with your usual appearance"
+"Got… lost, but in the end, you stayed with your usual appearance"
 
-The name of a surprised girl was Tiese Shtolienen. She was in the same status of Integrity Knight apprentice as Ronye. Autumn-colored eyes similar to her hair were shining vividly, her slim body was wrapped in cute patterned jacket and indigo skirt. She had lowered the red leather sheath on the waist, it even seems to be a sort of jewelry fitted with clothes.
+The name of the surprised girl was Tiese Shtolienen. She was in the same status of Integrity Knight apprentice as Ronye. Autumn-colored eyes similar to her hair were shining vividly, her slim body was wrapped in cute patterned jacket and indigo skirt. She had lowered the red leather sheath on the waist, it even seems to be a sort of jewelry fitted with clothes.
 
 _I should have brought the Southern Empire shawl I bought last week_, regretted the other one moving her gaze away, noticing Shimosaki<sup><a href="#Prim1">1</a></sup>, the young dragon she was raising, rubbing against Tsukigake’s nose, and a young man wearing a gentle smile behind Tiese.
 
-He was looking more like a boy than a young man, but the in addition to heavy long sword he was equipped with two crossed knives bent in the middle. Priority which is given to the sword was also considerable, but the one of throwing blades was simply outrageous. That weapon that looks thin like paper was nothing else than a "divine object" class weapon.
+He looked more like a boy than a young man, but in addition to heavy long sword he was equipped with, two crossed knives bent in the middle. Priority which is given to the sword was considerable, but the throwing knives was simply the outrageous one. That weapon which looked thin like paper was nothing else but a "divine object" class weapon.
 
-Ronye lifted the right fist, moved an arm horizontally and hit the chest, and placed the left hand on the handle of the sword greeting the young man with the formal knight bow.
+Ronye lifted her right fist, moved the arm horizontally and hit the chest, and placed the left hand on the handle of the sword greeting the young man with the formal knight bow.
 
 "Good morning, Renri-sama<sup><a href="#Prim2">2</a></sup>"
 
@@ -57,23 +57,23 @@ However, as a proof that it is not just a decoration, the upper part of the shar
 
 It can be said that it’s total length was about 5 mel, and orange flames were peeking out from the holes above and below the cylinders and in the back, but it’s identity could not be understood at all.
 
-_……One thing certain is that it makes me feel badly disgusted._
+_……One thing certain is that it makes me feel very disgusted._
 
-Muttering this deep within her heart, Ronye removed her gaze from a metallic dragon and stared at three people standing nearby.
+Muttering this deep within her heart, Ronye removed her gaze from a metallic dragon and stared at the three people standing nearby.
 
 Then one of them ── a young swordswoman with the long chestnut hair fluttering in the breeze having a fine sword hanging on the left hip on top of a pearl skirt, turned back as if feeling Ronye's gaze. She smiled once and raised a hand as if beckoning her.
 
 "Hey, come over here"
 
-As Tiese got hesitant and stepped back for a moment, Ronye moved forward and soon daringly crossed the yellow barrier rope. Behind her back, of course, followed Tsukigake.
+As Tiese got hesitant and stepped back for a moment, Ronye moved forward and soon daringly crossed the yellow barrier rope. Behind her back, of course, followed by Tsukigake.
 
 Under focused gaze of numerous spectators gathered, pulling her head in to the limit, she slowly crossed the square. Stopping in front of a swordswoman, she stretched out to the fingertips and returned the knight’s greeting again.
 
 "Good morning, Vice-Prime Swordsman-sama"
 
-"Good morning, Ronye-san. It looks like we’re celebrating today, so you can make it more comfortable"
+"Good morning, Ronye-san. It looks like we’re celebrating today, so you can be more at ease"
 
-She said that while having a light smile on her face beautiful enough to be disappointing, and Ronye relaxed shoulders and answered.
+She said that while having a light smile on her face beautiful enough to be disappointing, and Ronye relaxed her shoulders and answered.
 
 "...... Yes, Asuna-sama"
 
@@ -81,7 +81,7 @@ She said that while having a light smile on her face beautiful enough to be disa
 
 She sharpened her lips, but it was hard to accept this.
 
-A woman standing before Ronye’s eyes and looking a little older than her — a Vice Prime Swordsman of the Human World Union Council Asuna — was respected by everyone, in a sense, respected more than the Prime Swordsman himself. Because she was believed by all the people of the Human World that to be a reincarnation of "Genesis God Stasia", one of the three goddesses of Genesis mythology.
+A woman standing before Ronye’s eyes and looking a little older than her — a Vice Prime Swordsman of the Human World Union Council Asuna — was respected by everyone, in a sense, respected more than the Prime Swordsman himself. Because she was believed by all the people of the Human World to be the reincarnation of "Genesis God Stasia", one of the three goddesses of Genesis mythology.
 
 While she continues to deny that she is actually a god, Ronye witnessed a scene where Asuna have created a huge rift in the ground with a sword to cut the inevitable clash with other army. _Once you’ve seen that, you cannot even imagine omitting "sama"._
 
@@ -101,7 +101,7 @@ Ronye could not immediately understand the meaning of words, and she moved her g
 
 She looked up at the highest point of a metal dragon, and then saw two men discussing something beside it.
 
-"...... all in all, Kiri-boy, even if you say that the thermal element can is computationally resistant to the heat that one generates, that is because there is sufficient supply of permanent freezing! Grandson is not good at cryogenic element, so if you take any delay during the sacred art, the fully charged element can will blow in a blink of an eye!"
+"...... all in all, Kiri-boy, even if you say that the thermal element can be computationally resistant to the heat that one generates, that is because there is sufficient supply of permanent freezing! Grandson is not good at cryogenic element, so if you take any delay during the sacred art, the fully charged element will be blown in a blink of an eye!"
 
 The one proclaiming this loud speech full of unknown words was a man of about fifty years old owning a magnificent beard. That person well-known to Ronye, was a metalworker producing the best armor in the capital city of Centoria named Sadore. For a long time, he used to operate a shop in a downtown, and after a cooperation with the Integrity Knights Order in the "Rebellion of Four Empires", he took office as Central Cathedral's chief engineer.
 
@@ -113,7 +113,7 @@ He wore long-sleeved jacket and trousers of a strange gray color. There was no w
 
 "Hey, hearing this hurts my ear like an insect lurking inside. Old man, I guess it’s time to stop that “Kiri-boy”."
 
-"Hmph, don’t even hope it. Since that day three years ago, when you brought that hard branch to my shop so I had to completely use six grinding stones of precious black rocks to sharpen him into a sword, I decided to call you my grandson forever."
+"Hmph, don’t even hope it. Since that day three years ago, when you brought that hard branch to my shop so I had to completely use six grinding stones of precious black rocks to sharpen it into a sword, I decided to call you my grandson forever."
 
 "...... Mind you, without that sword, this world would be in great trouble..."
 
@@ -127,7 +127,7 @@ Ronye lowered her head, aspiring not to put it on the table.
 
 This time she would like to use “sama” as well, but exclusively for this person a “sama ban” was actually issued in official documents. So unavoidably, she used “senpai” as she would do back then when they both were students.
 
-Former Elite Swordsmen Trainee at the Sword Mastery Academy in North Centoria, a young man named Kirito who is currently appointed to the position of the Prime Swordsman of the Human World Union Council, said raising his right hand with a smile.
+Former Elite Swordsmen Trainee at the Sword Mastery Academy in North Centoria, a young man named Kirito who is currently appointed to the position of the Prime Swordsman of the Human World Union Council, said while raising his right hand with a smile.
 
 "Oh, Ronye! How are you doing?"
 
@@ -177,7 +177,7 @@ Murmuring distantly, master Sadore spread out his stubborn hands.
 
 "Eeeeee~~!?"
 
-_Ride — heck, does this make any sense now?_
+_Ride — the heck, does this make any sense now?_
 
 Fearfully she moved her face and looked up at the tip of the “machine dragon”.
 
@@ -366,7 +366,7 @@ Rumors said, the former head of the Elder Council that used to manage the Axiom 
 
 Even the knight Ronye was struck, not saying anything about the citizens who packed in Cathedral. High there in the air, an orange flash flared up so bright it should be called the second Solus, followed by the roar and a cruel shake as if heavens have fallen to the ground. Most of the onlookers screamed and covered heads with both hands.
 
-However, of course, unprocessed thermal elements have only exploded in the sky, so no damage has been none to the ground several hundred mel away from the bright phenomenon.
+However, of course, unprocessed thermal elements have only exploded in the sky, so no damage has been made to the ground several hundred mel away from the bright phenomenon.
 
 At the end of the line of sight of the visitors who raised their faces, the dark black smoke expanded fully covering the top of the Cathedral which returned back to the original position.
 
